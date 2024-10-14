@@ -1,2 +1,0 @@
-# Profile-saya-
-Masih pemula 
